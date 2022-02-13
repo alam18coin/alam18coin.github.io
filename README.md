@@ -1,0 +1,1 @@
+# alam18coin.github.io
